@@ -1,0 +1,4 @@
+- Fries chile de arbol sin que se te queme a fuego lento , aparte doras sin aceite ajonjoli.
+- mueles el chile a baja velocidad ,sin que quede muy molido.
+- le pones sal y aceite normal.
+- al final le agregas el alonjoli , y lo guardas en un frasco.
